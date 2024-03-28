@@ -1,0 +1,1 @@
+Les chickens wings, fatigués d'être constamment la cible des grandes chaînes de restauration rapide, ont finalement décidé de se rebeller. Après des années à être déchiquetés, carbonisés et servis dans des seaux de poulet frit, ils ont eu assez. Réunis dans leur petit coin de la ferme, ils ont concocté un plan pour prendre leur revanche.
